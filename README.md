@@ -1,9 +1,9 @@
-:heart_decoration: :heart_decoration: :heart_decoration: :heart_decoration: :heart_decoration: :heart_decoration: :heart_decoration: :heart_decoration: :heart_decoration:
+
 # :heart_decoration: TESTACHIEN :heart_decoration:
 ### Les instructions concernant Nana s'il m'arrive quelque chose.
 
 ## Qui peut prendre Nana en charge :
-- Marraine : Flore Luginbühl (cousine), Paris.
+- Marraine : Flore Luginbühl (cousine), Paris. [06 84 61 46 76](tel:+33684614676)
 - Parrain : Augustin Pelletier (frère), Grenoble.
 
 Aussi : personnes sur Instagram ayant des poms et en qui j'ai confiance (mais ils ne savent pas qu'ils sont listés ici) : 
